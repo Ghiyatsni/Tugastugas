@@ -1,3 +1,3 @@
 # Tugastugas
 
-semoga dengan tugas ini bisa meluluskan saya menjadi mahasiswa berprestasi dan sukses
+semoga dengan tugas ini bisa meluluskan saya menjadi mahasiswa berprestasi dan sukses, aamiin
